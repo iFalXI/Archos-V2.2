@@ -1,2 +1,2 @@
 # Archos-V2.2
-Bot wa
+Bot wa // Remake By iFal A.K.A Zoya
